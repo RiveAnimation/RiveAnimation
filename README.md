@@ -21,8 +21,8 @@ Interactive marketing campaigns and product showcases.
 📧 Email: uiuxanimation@gmail.com
 🌐 Websites:
 
-uiuxanimation.com
-riveanimation.com
+https://uiuxanimation.com
+https://riveanimation.com
 📱 WhatsApp: +94 71 700 0999
 
 😄 Pronouns:
